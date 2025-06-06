@@ -2,6 +2,4 @@
 
 
 
-
-
 These are picture cards introducing fruits
