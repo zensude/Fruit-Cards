@@ -2,4 +2,4 @@
 
 
 
-These are picture cards introducing fruits
+These are picture cards introducing fruits.You can see the pictures of fruits
